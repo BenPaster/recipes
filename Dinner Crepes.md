@@ -4,6 +4,7 @@
 Cooked in a big skillet with onion, garlic and pepper to taste.
 
 ## The White Sauce (to be drizzled on the ground beef)
+_[source](http://www.seriouseats.com/recipes/2011/12/serious-eats-halal-cart-style-chicken-and-rice-white-sauce-recipe.html)_
 
 * 1/2 cup mayonnaise
 * 1/2 cup sour cream
@@ -14,6 +15,7 @@ Cooked in a big skillet with onion, garlic and pepper to taste.
 * Kosher salt and freshly ground black pepper
 
 ## The Crepe
+_[source](http://allrecipes.com/recipe/basic-crepes/)_
 
 
 * 1 cup all-purpose flour
